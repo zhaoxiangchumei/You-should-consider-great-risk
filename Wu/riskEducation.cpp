@@ -1,3 +1,4 @@
+![火场]（https://github.com/zhaoxiangchumei/You-should-consider-great-risk/blob/master/images/%E7%81%AB%E5%9C%BA.jpg）
 1:    
 股灾    
 2015年6月15日，上证指数从5170点高位突然掉头向下，大跌103点，股灾正式降临。此后，市场迅速陷入极大的恐慌和大面积踩踏之中。
